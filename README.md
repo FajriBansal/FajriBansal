@@ -1,5 +1,3 @@
-# Rizky-Kurnia-Fajri-Nur
-
 # Halo semua! 
 
 Perkenalkan nama saya **Rizky Kurnia Fajri Nur**.
