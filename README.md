@@ -1,16 +1,14 @@
-### Hi there 👋
+# Rizky-Kurnia-Fajri-Nur
 
-<!--
-**FajriBansal/FajriBansal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# Halo semua! 
 
-Here are some ideas to get you started:
+Perkenalkan nama saya **Rizky Kurnia Fajri Nur**.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Saya seorang **Aktivis Dakwah Kampus** di PD KAMMI Bekasi .
+
+Saya bertanggung jawab menjadi kader di sana.
+
+Saya juga sedang menempuh pendidikan di STMIK Bani Saleh guna mendapatkan gelar S1.
+
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun https://twitter.com/DesuNoor.
+
