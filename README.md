@@ -1,4 +1,4 @@
-<img src="https://1.bp.blogspot.com/-NlmoV9AKzR8/Wx4Q3-lHPQI/AAAAAAAAAY0/LrLP-GFQ67EKQZiPKReS9vwnbCf1TKGVQCLcBGAs/w1200-h630-p-k-no-nu/DHLAE8OVoAQhSXE.jpg">
+<img src="https://www.kaorinusantara.or.id/wp-content/uploads/2019/01/IMG_20190118_181537.jpg" width="500px" height="200px" >
 
 <h2 align="center"> 🦊 ~ 𝓐𝓫𝓸𝓾𝓽 𝓶𝓮 ~ 🦊 </h2>
 
