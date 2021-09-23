@@ -1,3 +1,7 @@
+<img src="https://1.bp.blogspot.com/-NlmoV9AKzR8/Wx4Q3-lHPQI/AAAAAAAAAY0/LrLP-GFQ67EKQZiPKReS9vwnbCf1TKGVQCLcBGAs/w1200-h630-p-k-no-nu/DHLAE8OVoAQhSXE.jpg">
+
+<h2 align="center"> 🦊 ~ 𝓐𝓫𝓸𝓾𝓽 𝓶𝓮 ~ 🦊 </h2>
+
 # Halo semua! 
 
 Perkenalkan nama saya **Rizky Kurnia Fajri Nur**.
